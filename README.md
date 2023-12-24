@@ -1,0 +1,2 @@
+# Mauritania
+Republic of Mauritania.
